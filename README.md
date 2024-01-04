@@ -8,4 +8,4 @@ My name is Patricia Gomez and ...
 - 💬 Ask me about how I can contribute to your company or team
 - 📫 by reaching out to me on: paigomez@yahoo.com
 - 😄 My pronouns are: she/her
-- ⚡ and a fun fact about me is: I've 7 month old baby boy named Kian
+- ⚡ and a fun fact about me is: I've 18 month old baby boy named Kian
